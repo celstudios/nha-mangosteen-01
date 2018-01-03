@@ -1,1 +1,5 @@
-# nha-mangosteen-01
+Enthusiastic
+quick-learner
+inquisitive
+persistent
+crafty
